@@ -5,6 +5,6 @@
 ### you
 #### a
 ##### Merry
-###### Christmas!
+###### Christmas! And a Happy New Year!
 
 ![Christmas](http://www.study.ru/upload/images/1417790598_merrychristmascard2012.png)
